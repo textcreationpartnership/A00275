@@ -32,9 +32,15 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-To my faythfull bretheren now affycted ...1566Approx. 64 KB of XML-encoded text transcribed from 29 
+
 #####Body#####
-To my faythfull bretheren now affycted ...1566Approx. 64 KB of XML-encoded text transcribed from 29 
+¶ To all my faithful brethren in Chriſt Jeſu and to all other that labour to weade out the wedes of ¶ Grace and peace with all maner ſpiritual feling and liuing worthi of the kindnes of Chriſt, be wit¶ To my faythfull Brethren now afflycted, & to all thoſe that vnfaynedly loue the Lorde Jeſus, the L
+1. ¶ To the Reader.
+DEarly belouyd, you that haue wytte, vnderſtanding, and wyll to be inſtructyd in this controuerſi▪ n
+1. ¶ An Anſwere to a queſtion, that was mouyd, whi the godly men wold not weare a ſurples.
+
+1. ¶ A Godly Prayer.
+
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
